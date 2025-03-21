@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @daisq24
+- 👀 I’m interested in AI&BLOCKLINE APPLICATION IN URBAN DESIGN AND PLANNING
+- 🌱 I’m currently learning ARCHITECTURE IN TSINGHUA UNIVERSITY
+- 💞️ I’m looking to collaborate on STUDIES ON AI AGENT 
+- 📫 daisq220@gamail.com
